@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+- insultare dio.
+- la figa.
+- trovare sconti sui bambini sul deep web.
+- MI DISSOCIO.
