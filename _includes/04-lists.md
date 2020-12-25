@@ -1,4 +1,4 @@
 - insultare dio.
 - la figa.
 - trovare sconti sui bambini sul deep web.
-- MI DISSOCIO.
+- MI DISSOCIO :heart: .
